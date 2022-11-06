@@ -1,4 +1,4 @@
-## Getting Started
+## Creator
 
 Created by 21343039_Ahmad Reginald Syahiran
 
